@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SefikBayar
+- 👋 Hi, I’m @shefo
 - 👀 I’m interested in everything interesting.
 - 🌱 I’m currently learning a lot. 
 - 💞️ I’m looking to collaborate on anything. 
